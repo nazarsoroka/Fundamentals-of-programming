@@ -12,4 +12,6 @@
 6. Яремчук Андрій
 7. Яворський Володимир 
 
-image.png
+
+
+https://itcollege.lviv.ua/wp-content/uploads/2022/01/NULPlogo_FOR_PRINT.png
